@@ -1,1 +1,1 @@
-# study for larn
+# study
